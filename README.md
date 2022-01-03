@@ -1,2 +1,0 @@
-# miningusd
-Mesinpencariuang
